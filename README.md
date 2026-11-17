@@ -1,1 +1,2 @@
-# Shamsi Mama Mahmud
+shamsi mama mahmud
+shemsi mamo mahmud
